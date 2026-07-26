@@ -1,8 +1,7 @@
 <p align="center">
 <img width="1114" height="321" alt="image" src="https://github.com/user-attachments/assets/a74c8b28-060a-4ce0-b581-adc4df6f7360" />
 
-<p align ="Right"> 
-<img width="349" height="289" alt="image" src="https://github.com/user-attachments/assets/14aebd19-10b5-4001-9df5-e646d3a49f03" /> 
+
  
 <p align ="center"> 
  ${{\color{#ebebeb}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
