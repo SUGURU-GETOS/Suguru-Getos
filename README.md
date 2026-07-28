@@ -7,11 +7,11 @@
  ${{\color{#367a97}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
 
 <p align ="center"> 
- $\color{#2d525f}\normalsize{\texttt{⌗.Tofu}}$ $\color{#3b8490}\normalsize{\texttt{Here.}}$ $\color{#4fa2a1}\normalsize{\texttt{c'h Freely}}$ $\color{#8eb8aa}\normalsize{\texttt{Unless on}}$ $\color{#b0c8b4}\normalsize{\texttt{dni.}}$ ${{\color{#c4d1b9}\normalsize{\texttt {(˵˃ ᗜ ˂˵)} }}}$
+ $\color{#2d525f}\normalsize{\texttt{♫.Tofu}}$ $\color{#3b8490}\normalsize{\texttt{Here.}}$ $\color{#4fa2a1}\normalsize{\texttt{c'h Freely}}$ $\color{#8eb8aa}\normalsize{\texttt{Unless on}}$ $\color{#b0c8b4}\normalsize{\texttt{dni.}}$ ${{\color{#c4d1b9}\normalsize{\texttt {(˵˃ ᗜ ˂˵)} }}}$
 <p align ="center"> 
- $\color{#2d525f}\normalsize{\texttt{I}}$ $\color{#3b8490}\normalsize{\texttt{do}}$ $\color{#4fa2a1}\normalsize{\texttt{try to}}$ $\color{#8eb8aa}\normalsize{\texttt{talk}}$ $\color{#b0c8b4}\normalsize{\texttt{more}}$ ${{\color{#c4d1b9}\normalsize{\texttt {໒꒰ྀི´ ˘ ` ꒱ྀིა} }}}$
+ $\color{#2d525f}\normalsize{\texttt{𝄞 I}}$ $\color{#3b8490}\normalsize{\texttt{do}}$ $\color{#4fa2a1}\normalsize{\texttt{try to}}$ $\color{#8eb8aa}\normalsize{\texttt{talk}}$ $\color{#b0c8b4}\normalsize{\texttt{more}}$ ${{\color{#c4d1b9}\normalsize{\texttt {໒꒰ྀི´ ˘ ` ꒱ྀིა} }}}$
 <p align ="center"> 
- $\color{#2d525f}\normalsize{\texttt{I}}$ $\color{#3b8490}\normalsize{\texttt{do}}$ $\color{#4fa2a1}\normalsize{\texttt{not go}}$ $\color{#8eb8aa}\normalsize{\texttt{well}}$ $\color{#8eb8aa}\normalsize{\texttt{talking to}}$ ${{\color{#c4d1b9}\normalsize{\texttt {New people.. BEAR W ME} }}}$
+ $\color{#2d525f}\normalsize{\texttt{✮⋆˙ I}}$ $\color{#3b8490}\normalsize{\texttt{do}}$ $\color{#4fa2a1}\normalsize{\texttt{not go}}$ $\color{#8eb8aa}\normalsize{\texttt{well}}$ $\color{#8eb8aa}\normalsize{\texttt{talking to}}$ ${{\color{#c4d1b9}\normalsize{\texttt {New people.. BEAR W ME} }}}$
  </p>
 <p align ="center"> 
  ${{\color{#367a97}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
