@@ -4,33 +4,33 @@
 
  
 <p align ="center"> 
- ${{\color{#ebebeb}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
+ ${{\color{#367a97}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
 
 <p align ="center"> 
- $\color{#30302e}\normalsize{\texttt{⌗.Tofu}}$ $\color{#444444}\normalsize{\texttt{Here.}}$ $\color{#565656}\normalsize{\texttt{c'h Freely}}$ $\color{#7c7c7c}\normalsize{\texttt{Unless on}}$ $\color{#b6b6b6}\normalsize{\texttt{dni.}}$ ${{\color{#ebebeb}\normalsize{\texttt {(˵˃ ᗜ ˂˵)} }}}$
+ $\color{#2d525f}\normalsize{\texttt{⌗.Tofu}}$ $\color{#3b8490}\normalsize{\texttt{Here.}}$ $\color{#4fa2a1}\normalsize{\texttt{c'h Freely}}$ $\color{#8eb8aa}\normalsize{\texttt{Unless on}}$ $\color{#b0c8b4}\normalsize{\texttt{dni.}}$ ${{\color{#c4d1b9}\normalsize{\texttt {(˵˃ ᗜ ˂˵)} }}}$
 <p align ="center"> 
- $\color{#30302e}\normalsize{\texttt{I}}$ $\color{#444444}\normalsize{\texttt{do}}$ $\color{#565656}\normalsize{\texttt{try to}}$ $\color{#7c7c7c}\normalsize{\texttt{talk}}$ $\color{#b6b6b6}\normalsize{\texttt{more}}$ ${{\color{#ebebeb}\normalsize{\texttt {໒꒰ྀི´ ˘ ` ꒱ྀིა} }}}$
+ $\color{#2d525f}\normalsize{\texttt{I}}$ $\color{#3b8490}\normalsize{\texttt{do}}$ $\color{#4fa2a1}\normalsize{\texttt{try to}}$ $\color{#8eb8aa}\normalsize{\texttt{talk}}$ $\color{#b0c8b4}\normalsize{\texttt{more}}$ ${{\color{#c4d1b9}\normalsize{\texttt {໒꒰ྀི´ ˘ ` ꒱ྀིა} }}}$
 <p align ="center"> 
- $\color{#30302e}\normalsize{\texttt{I}}$ $\color{#444444}\normalsize{\texttt{do}}$ $\color{#565656}\normalsize{\texttt{not go}}$ $\color{#7c7c7c}\normalsize{\texttt{well}}$ $\color{#b6b6b6}\normalsize{\texttt{talking to}}$ ${{\color{#ebebeb}\normalsize{\texttt {New people.. BEAR W ME} }}}$
+ $\color{#2d525f}\normalsize{\texttt{I}}$ $\color{#3b8490}\normalsize{\texttt{do}}$ $\color{#4fa2a1}\normalsize{\texttt{not go}}$ $\color{#8eb8aa}\normalsize{\texttt{well}}$ $\color{#8eb8aa}\normalsize{\texttt{talking to}}$ ${{\color{#c4d1b9}\normalsize{\texttt {New people.. BEAR W ME} }}}$
  </p>
 <p align ="center"> 
- ${{\color{#ebebeb}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
+ ${{\color{#367a97}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
  
 <p align ="center"> 
- ${{\color{#ebebeb} *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ }}$
+ ${{\color{#2d525f} *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ }}$
 
 <p align ="center"> 
- ${{\color{#30302e} ૮꒰}}$ 
+ ${{\color{#2d525f} ૮꒰}}$ 
    <a href="https://suguru-geto.atabook.org/">𝘈𝘵𝘢𝘉𝘰𝘰𝘬</a>
- ${{\color{#444444} .☽༊˚ }}$
+ ${{\color{#3b8490} .☽༊˚ }}$
    <a href="https://guns.lol/2ugurugeto">𝘎𝘶𝘯𝘴.𝘓𝘰𝘭</a>
- ${{\color{#565656} .☽༊˚ }}$
+ ${{\color{#4fa2a1} .☽༊˚ }}$
   <a href="https://www.tiktok.com/@geto_sugurus">𝘛𝘪𝘬𝘛𝘰𝘬</a>
-  ${{\color{#7c7c7c}☽༊˚ }}$ 
+  ${{\color{#8eb8aa}☽༊˚ }}$ 
    <a href="https://x.com/Suguru_Getos">𝘛𝘸𝘪𝘵𝘵𝘦𝘳</a>
-  ${{\color{#ebebeb}꒱ა }}$ 
+  ${{\color{#b0c8b4} ༘ }}$ 
 <a href="https://sugutofu.straw.page/">StrawPage</a>
-  ${{\color{#ebebeb}꒱ა }}$ 
+  ${{\color{#c4d1b9}꒱ა }}$ 
 </p>
 
 
