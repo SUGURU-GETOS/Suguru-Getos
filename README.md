@@ -35,4 +35,8 @@
 
 
 <p align ="center"> 
+  ${{\color{#c4d1b9}▶︎•၊၊||၊|။|||||။၊|။• ♪ ♫ ♬.ᐟ}}$ 
+
+
+<p align ="center"> 
 <img width="507" height="469" alt="image" src="https://github.com/user-attachments/assets/a3fb8465-857b-41f7-bc9b-aef15adb432f" />
