@@ -34,9 +34,8 @@
 </p>
 
 
-<p align ="center"> 
-  ${{\color{#c4d1b9}▶︎•၊၊||၊|။|||||။၊|။• ♪ ♫ ♬.ᐟ}}$ 
-
+<p align ="center">  
+ $\color{#2d525f}\normalsize{\texttt{▶︎•၊၊}}$ $\color{#3b8490}\normalsize{\texttt{||၊|။|}}$ $\color{#4fa2a1}\normalsize{\texttt{|||။}}$ $\color{#8eb8aa}\normalsize{\texttt{၊|။•}}$ $\color{#b0c8b4}\normalsize{\texttt{♫⋆｡}}$ ${{\color{#c4d1b9}\normalsize{\texttt {♪ ₊˚♬ ﾟ.} }}}$
 
 <p align ="center"> 
 <img width="507" height="469" alt="image" src="https://github.com/user-attachments/assets/a3fb8465-857b-41f7-bc9b-aef15adb432f" />
