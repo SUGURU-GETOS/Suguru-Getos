@@ -35,4 +35,4 @@
 
 
 <p align ="center"> 
-<img width="731" height="266" alt="image" src="https://github.com/user-attachments/assets/edea1e74-d1fa-42e7-8512-ace35579746a" />
+<img width="507" height="469" alt="image" src="https://github.com/user-attachments/assets/a3fb8465-857b-41f7-bc9b-aef15adb432f" />
