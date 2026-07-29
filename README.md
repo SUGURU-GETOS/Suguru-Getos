@@ -7,6 +7,8 @@
  ${{\color{#367a97}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
 
 <p align ="center"> 
+ <img width="116" height="122" alt="pony-town-1# kfc brake up-boop-blinking-padded-2x" src="https://github.com/user-attachments/assets/7cd8f208-4f2c-4abd-a6ea-cd8ddce37a48" />
+<p align ="center"> 
  $\color{#2d525f}\normalsize{\texttt{♫.Tofu}}$ $\color{#3b8490}\normalsize{\texttt{Here.}}$ $\color{#4fa2a1}\normalsize{\texttt{c'h Freely}}$ $\color{#8eb8aa}\normalsize{\texttt{Unless on}}$ $\color{#b0c8b4}\normalsize{\texttt{dni.}}$ ${{\color{#c4d1b9}\normalsize{\texttt {(˵˃ ᗜ ˂˵)} }}}$
 <p align ="center"> 
  $\color{#2d525f}\normalsize{\texttt{𝄞 I}}$ $\color{#3b8490}\normalsize{\texttt{do}}$ $\color{#4fa2a1}\normalsize{\texttt{try to}}$ $\color{#8eb8aa}\normalsize{\texttt{talk}}$ $\color{#b0c8b4}\normalsize{\texttt{more}}$ ${{\color{#c4d1b9}\normalsize{\texttt {໒꒰ྀི´ ˘ ` ꒱ྀིა} }}}$
@@ -18,6 +20,8 @@
  
 <p align ="center"> 
  ${{\color{#2d525f} *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ }}$
+
+
 
 <p align ="center"> 
  ${{\color{#2d525f} ૮꒰}}$ 
