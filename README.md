@@ -3,7 +3,8 @@
 
 <p align ="center"> 
  $\color{#2d525f}\normalsize{\texttt{Please}}$ $\color{#3b8490}\normalsize{\texttt{Bear with}}$ $\color{#4fa2a1}\normalsize{\texttt{me..}}$ $\color{#8eb8aa}\normalsize{\texttt{I find it hard to}}$ $\color{#b0c8b4}\normalsize{\texttt{Interact with}}$ ${{\color{#c4d1b9}\normalsize{\texttt {People! >.< } }}}$
-
+<p align ="center"> 
+ $\color{#2d525f}\normalsize{\texttt{I'm just}}$ $\color{#3b8490}\normalsize{\texttt{Worried}}$ $\color{#4fa2a1}\normalsize{\texttt{Other's might hate}}$ $\color{#8eb8aa}\normalsize{\texttt{Hate me}}$ $\color{#b0c8b4}\normalsize{\texttt{by the way i talk..}}$ ${{\color{#c4d1b9}\normalsize{\texttt { SOS (˚ ˃̣̣̥⌓˂̣̣̥ ) } }}}$
  
 <p align ="center"> 
  ${{\color{#367a97}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
