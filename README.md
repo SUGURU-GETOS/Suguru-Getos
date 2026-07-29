@@ -1,6 +1,8 @@
 <p align="center">
 <img width="982" height="458" alt="image" src="https://github.com/user-attachments/assets/92fb0925-65d1-4b9e-998a-1edb9c06ebf5" />
 
+<p align ="center"> 
+ $\color{#2d525f}\normalsize{\texttt{Please}}$ $\color{#3b8490}\normalsize{\texttt{Bear with}}$ $\color{#4fa2a1}\normalsize{\texttt{me..}}$ $\color{#8eb8aa}\normalsize{\texttt{I find it hard to}}$ $\color{#b0c8b4}\normalsize{\texttt{Interact with}}$ ${{\color{#c4d1b9}\normalsize{\texttt {People! >.< } }}}$
 
  
 <p align ="center"> 
