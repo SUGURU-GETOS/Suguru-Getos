@@ -36,6 +36,8 @@
   ${{\color{#8eb8aa}☽༊˚ }}$ 
    <a href="https://x.com/Suguru_Getos">𝘛𝘸𝘪𝘵𝘵𝘦𝘳</a>
   ${{\color{#b0c8b4} ༘ }}$ 
+ <a href="https://rentry.co/Sugurgetos/">Rentry.co</a>
+  ${{\color{#c4d1b9}˖๋ ࣭ ⭑ }}$
 <a href="https://sugutofu.straw.page/">StrawPage</a>
   ${{\color{#c4d1b9}꒱ა }}$ 
 </p>
@@ -46,3 +48,5 @@
 
 <p align ="center"> 
 <img width="507" height="469" alt="image" src="https://github.com/user-attachments/assets/a3fb8465-857b-41f7-bc9b-aef15adb432f" />
+
+
