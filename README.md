@@ -60,4 +60,11 @@
 <p align ="center"> 
 <img width="507" height="469" alt="image" src="https://github.com/user-attachments/assets/a3fb8465-857b-41f7-bc9b-aef15adb432f" />
 
-
+<p align ="center"> 
+ ${{\color{#2d525f} Other accounts }}$ 
+<p align ="center"> 
+ ${{\color{#2d525f} ♡ }}$ 
+   <a href="https://github.com/Sukuna-Ryomens/">@Sukuna-Ryomens </a>  ${{\color{#2d525f} ♡ }}$ 
+   <a href="https://github.com/SushiTofu/">@SushiTofu</a> ${{\color{#2d525f} ♡ }}$ 
+   <a href="https://github.com/YUJI-TADORI/">@YUJI-TADORI </a> ${{\color{#2d525f} ♡ }}$ 
+ 
