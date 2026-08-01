@@ -1,4 +1,16 @@
 <p align="center">
+
+ <p align ="center"> 
+ ${{\color{#367a97} My fav chuds }}$
+
+<p align ="center"> 
+ ${{\color{#2d525f} ♡ }}$ 
+   <a href="https://github.com/Satoru-Gojos/">@Satoru-Gojos</a>  ${{\color{#2d525f} ♡ }}$ 
+   <a href="https://github.com/loveruffle/">@loveruffle</a> ${{\color{#2d525f} ♡ }}$ 
+   <a href="https://github.com/HIGUGETO/">@HIGUGETO</a> ${{\color{#2d525f} ♡ }}$ 
+ 
+
+ 
 <img width="982" height="458" alt="image" src="https://github.com/user-attachments/assets/92fb0925-65d1-4b9e-998a-1edb9c06ebf5" />
 
 <p align ="center"> 
@@ -23,7 +35,6 @@
  
 <p align ="center"> 
  ${{\color{#2d525f} *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ }}$
-
 
 
 <p align ="center"> 
