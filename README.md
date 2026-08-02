@@ -45,7 +45,7 @@
  ${{\color{#4fa2a1} .☽༊˚ }}$
   <a href="https://www.tiktok.com/@geto_sugurus">𝘛𝘪𝘬𝘛𝘰𝘬</a>
   ${{\color{#8eb8aa}☽༊˚ }}$ 
-   <a href="https://x.com/Suguru_Getos">𝘛𝘸𝘪𝘵𝘵𝘦𝘳</a>
+   <a href="https://x.com/Shrimp_Tofu">𝘛𝘸𝘪𝘵𝘵𝘦𝘳</a>
   ${{\color{#b0c8b4} ༘ }}$ 
  <a href="https://rentry.co/Sugurgetos/">Rentry.co</a>
   ${{\color{#c4d1b9}˖๋ ࣭ ⭑ }}$
