@@ -66,5 +66,5 @@
  ${{\color{#2d525f} ♡ }}$ 
    <a href="https://github.com/Sukuna-Ryomens/">@Sukuna-Ryomens </a>  ${{\color{#2d525f} ♡ }}$ 
    <a href="https://github.com/SushiTofu/">@SushiTofu</a> ${{\color{#2d525f} ♡ }}$ 
-   <a href="https://github.com/YUJI-TADORI/">@YUJI-TADORI </a> ${{\color{#2d525f} ♡ }}$ 
+   <a href="https://github.com/DONATELLO-HAMATO /">@DONATELLO-HAMATO  </a> ${{\color{#2d525f} ♡ }}$ 
  
