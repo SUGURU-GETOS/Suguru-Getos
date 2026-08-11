@@ -16,6 +16,22 @@
  $\color{#2d525f}\normalsize{\texttt{I'm just}}$ $\color{#3b8490}\normalsize{\texttt{Worried}}$ $\color{#4fa2a1}\normalsize{\texttt{Other's might hate}}$ $\color{#8eb8aa}\normalsize{\texttt{Hate me}}$ $\color{#b0c8b4}\normalsize{\texttt{by the way i talk..}}$ ${{\color{#c4d1b9}\normalsize{\texttt { SOS (˚ ˃̣̣̥⌓˂̣̣̥ ) } }}}$
 
 <p align ="center"> 
+ ${{\color{#2d525f} ૮꒰}}$ 
+   <a href="https://suguru-geto.atabook.org/">𝘈𝘵𝘢𝘉𝘰𝘰𝘬</a>
+ ${{\color{#3b8490} .☽༊˚ }}$
+   <a href="https://guns.lol/2ugurugeto">𝘎𝘶𝘯𝘴.𝘓𝘰𝘭</a>
+ ${{\color{#4fa2a1} .☽༊˚ }}$
+  <a href="https://www.tiktok.com/@geto_sugurus">𝘛𝘪𝘬𝘛𝘰𝘬</a>
+  ${{\color{#8eb8aa}☽༊˚ }}$ 
+   <a href="https://x.com/Shrimp_Tofu">𝘛𝘸𝘪𝘵𝘵𝘦𝘳</a>
+  ${{\color{#b0c8b4} ༘ }}$ 
+ <a href="https://rentry.co/Sugurgetos/">Rentry.co</a>
+  ${{\color{#c4d1b9}˖๋ ࣭ ⭑ }}$
+<a href="https://sugutofu.straw.page/">StrawPage</a>
+  ${{\color{#c4d1b9}꒱ა }}$ 
+</p>
+
+<p align ="center"> 
 <img width="529" height="467" alt="image" src="https://github.com/user-attachments/assets/c9c48b8c-4e11-449c-8562-c0e4a23837e1" />
 
  
@@ -35,21 +51,7 @@
  ${{\color{#2d525f} *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ }}$
 
 
-<p align ="center"> 
- ${{\color{#2d525f} ૮꒰}}$ 
-   <a href="https://suguru-geto.atabook.org/">𝘈𝘵𝘢𝘉𝘰𝘰𝘬</a>
- ${{\color{#3b8490} .☽༊˚ }}$
-   <a href="https://guns.lol/2ugurugeto">𝘎𝘶𝘯𝘴.𝘓𝘰𝘭</a>
- ${{\color{#4fa2a1} .☽༊˚ }}$
-  <a href="https://www.tiktok.com/@geto_sugurus">𝘛𝘪𝘬𝘛𝘰𝘬</a>
-  ${{\color{#8eb8aa}☽༊˚ }}$ 
-   <a href="https://x.com/Shrimp_Tofu">𝘛𝘸𝘪𝘵𝘵𝘦𝘳</a>
-  ${{\color{#b0c8b4} ༘ }}$ 
- <a href="https://rentry.co/Sugurgetos/">Rentry.co</a>
-  ${{\color{#c4d1b9}˖๋ ࣭ ⭑ }}$
-<a href="https://sugutofu.straw.page/">StrawPage</a>
-  ${{\color{#c4d1b9}꒱ა }}$ 
-</p>
+
 
 
 <p align ="center">  
