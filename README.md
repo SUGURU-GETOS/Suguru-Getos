@@ -10,19 +10,17 @@
    <a href="https://github.com/HIGUGETO/">@HIGUGETO</a> ${{\color{#2d525f} ♡ }}$ 
  
 
- 
-<img width="982" height="458" alt="image" src="https://github.com/user-attachments/assets/92fb0925-65d1-4b9e-998a-1edb9c06ebf5" />
-
 <p align ="center"> 
  $\color{#2d525f}\normalsize{\texttt{Please}}$ $\color{#3b8490}\normalsize{\texttt{Bear with}}$ $\color{#4fa2a1}\normalsize{\texttt{me..}}$ $\color{#8eb8aa}\normalsize{\texttt{I find it hard to}}$ $\color{#b0c8b4}\normalsize{\texttt{Interact with}}$ ${{\color{#c4d1b9}\normalsize{\texttt {People! >.< } }}}$
 <p align ="center"> 
  $\color{#2d525f}\normalsize{\texttt{I'm just}}$ $\color{#3b8490}\normalsize{\texttt{Worried}}$ $\color{#4fa2a1}\normalsize{\texttt{Other's might hate}}$ $\color{#8eb8aa}\normalsize{\texttt{Hate me}}$ $\color{#b0c8b4}\normalsize{\texttt{by the way i talk..}}$ ${{\color{#c4d1b9}\normalsize{\texttt { SOS (˚ ˃̣̣̥⌓˂̣̣̥ ) } }}}$
+
+<p align ="center"> 
+<img width="529" height="467" alt="image" src="https://github.com/user-attachments/assets/c9c48b8c-4e11-449c-8562-c0e4a23837e1" />
+
  
 <p align ="center"> 
  ${{\color{#367a97}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
-
-<p align ="center"> 
- <img width="116" height="122" alt="pony-town-1# kfc brake up-boop-blinking-padded-2x" src="https://github.com/user-attachments/assets/7cd8f208-4f2c-4abd-a6ea-cd8ddce37a48" />
 <p align ="center"> 
  $\color{#2d525f}\normalsize{\texttt{♫.Tofu}}$ $\color{#3b8490}\normalsize{\texttt{Here.}}$ $\color{#4fa2a1}\normalsize{\texttt{c'h Freely}}$ $\color{#8eb8aa}\normalsize{\texttt{Unless on}}$ $\color{#b0c8b4}\normalsize{\texttt{dni.}}$ ${{\color{#c4d1b9}\normalsize{\texttt {(˵˃ ᗜ ˂˵)} }}}$
 <p align ="center"> 
@@ -56,9 +54,6 @@
 
 <p align ="center">  
  $\color{#2d525f}\normalsize{\texttt{▶︎•၊၊}}$ $\color{#3b8490}\normalsize{\texttt{||၊|။|}}$ $\color{#4fa2a1}\normalsize{\texttt{|||။}}$ $\color{#8eb8aa}\normalsize{\texttt{၊|။•}}$ $\color{#b0c8b4}\normalsize{\texttt{♫⋆｡}}$ ${{\color{#c4d1b9}\normalsize{\texttt {♪ ₊˚♬ ﾟ.} }}}$
-
-<p align ="center"> 
-<img width="507" height="469" alt="image" src="https://github.com/user-attachments/assets/a3fb8465-857b-41f7-bc9b-aef15adb432f" />
 
 <p align ="center"> 
  ${{\color{#2d525f} Other accounts }}$ 
