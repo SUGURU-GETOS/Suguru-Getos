@@ -32,7 +32,7 @@
 </p>
 
 <p align ="center"> 
-<img width="529" height="467" alt="image" src="https://github.com/user-attachments/assets/c9c48b8c-4e11-449c-8562-c0e4a23837e1" />
+<img width="346" height="331" alt="image" src="https://github.com/user-attachments/assets/55de21fc-d63b-4aa6-91d6-dbc1a596b5be" />
 
  
 <p align ="center"> 
