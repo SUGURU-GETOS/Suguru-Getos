@@ -10,31 +10,12 @@
    <a href="https://github.com/HIGUGETO/">@HIGUGETO</a> ${{\color{#2d525f} ♡ }}$ 
  
 
+&nbsp; <p align="center"> [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/e3ea1ff9-2c73-4713-9117-21ab22907dd8" />](https://rentry.co/Sugurgetos/) [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/717afe4f-07a3-468d-a91c-37d21f65e79a" />](https://suguru-geto.atabook.org/) [<img width="123" height="60" alt="image" src="https://github.com/user-attachments/assets/bc740f70-844e-4909-8911-f9b4aaecc653" />](https://guns.lol/2ugurugeto)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/83ff229b-efa8-4ca4-8583-dabf2cd295f4" />](https://sugutofu.straw.page/)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/f8afb8e9-a613-4752-9822-0d9d6e6146d0" />](https://x.com/Shrimp_Tofu)
 
-
-<p align ="center"> 
-<img width="192" height="342" alt="image" src="https://github.com/user-attachments/assets/86839537-40aa-4ec4-9b11-cab4a8b3c596" />
-
-
-<p align ="center"> 
- ${{\color{#2d525f} ૮꒰}}$ 
-   <a href="https://suguru-geto.atabook.org/">𝘈𝘵𝘢𝘉𝘰𝘰𝘬</a>
- ${{\color{#3b8490} .☽༊˚ }}$
-   <a href="https://guns.lol/2ugurugeto">𝘎𝘶𝘯𝘴.𝘓𝘰𝘭</a>
- ${{\color{#4fa2a1} .☽༊˚ }}$
-  <a href="https://www.tiktok.com/@geto_sugurus">𝘛𝘪𝘬𝘛𝘰𝘬</a>
-  ${{\color{#8eb8aa}☽༊˚ }}$ 
-   <a href="https://x.com/Shrimp_Tofu">𝘛𝘸𝘪𝘵𝘵𝘦𝘳</a>
-  ${{\color{#b0c8b4} ༘ }}$ 
- <a href="https://rentry.co/Sugurgetos/">Rentry.co</a>
-  ${{\color{#c4d1b9}˖๋ ࣭ ⭑ }}$
-<a href="https://sugutofu.straw.page/">StrawPage</a>
-  ${{\color{#c4d1b9}꒱ა }}$ 
-</p>
 
  <p align ="center"> 
   
-<img width="266" height="338" alt="image" src="https://github.com/user-attachments/assets/8d07183f-aaea-45d0-92fd-9b1fa9339cc8" />
+<img width="929" height="458" alt="image" src="https://github.com/user-attachments/assets/5b2c805b-3960-4e4c-aab3-6e8ac5ee8f7f" />
 
   
 
