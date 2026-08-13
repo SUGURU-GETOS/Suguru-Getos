@@ -10,10 +10,11 @@
    <a href="https://github.com/HIGUGETO/">@HIGUGETO</a> ${{\color{#2d525f} ♡ }}$ 
  
 
+
+
 <p align ="center"> 
- $\color{#2d525f}\normalsize{\texttt{Please}}$ $\color{#3b8490}\normalsize{\texttt{Bear with}}$ $\color{#4fa2a1}\normalsize{\texttt{me..}}$ $\color{#8eb8aa}\normalsize{\texttt{I find it hard to}}$ $\color{#b0c8b4}\normalsize{\texttt{Interact with}}$ ${{\color{#c4d1b9}\normalsize{\texttt {People! >.< } }}}$
-<p align ="center"> 
- $\color{#2d525f}\normalsize{\texttt{I'm just}}$ $\color{#3b8490}\normalsize{\texttt{Worried}}$ $\color{#4fa2a1}\normalsize{\texttt{Other's might hate}}$ $\color{#8eb8aa}\normalsize{\texttt{Hate me}}$ $\color{#b0c8b4}\normalsize{\texttt{by the way i talk..}}$ ${{\color{#c4d1b9}\normalsize{\texttt { SOS (˚ ˃̣̣̥⌓˂̣̣̥ ) } }}}$
+<img width="192" height="342" alt="image" src="https://github.com/user-attachments/assets/86839537-40aa-4ec4-9b11-cab4a8b3c596" />
+
 
 <p align ="center"> 
  ${{\color{#2d525f} ૮꒰}}$ 
@@ -31,24 +32,8 @@
   ${{\color{#c4d1b9}꒱ა }}$ 
 </p>
 
-<p align ="center"> 
-<img width="346" height="331" alt="image" src="https://github.com/user-attachments/assets/55de21fc-d63b-4aa6-91d6-dbc1a596b5be" />
-
- 
-<p align ="center"> 
- ${{\color{#367a97}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
-<p align ="center"> 
- $\color{#2d525f}\normalsize{\texttt{♫.Tofu}}$ $\color{#3b8490}\normalsize{\texttt{Here.}}$ $\color{#4fa2a1}\normalsize{\texttt{c'h Freely}}$ $\color{#8eb8aa}\normalsize{\texttt{Unless on}}$ $\color{#b0c8b4}\normalsize{\texttt{dni.}}$ ${{\color{#c4d1b9}\normalsize{\texttt {(˵˃ ᗜ ˂˵)} }}}$
-<p align ="center"> 
- $\color{#2d525f}\normalsize{\texttt{𝄞 I}}$ $\color{#3b8490}\normalsize{\texttt{do}}$ $\color{#4fa2a1}\normalsize{\texttt{try to}}$ $\color{#8eb8aa}\normalsize{\texttt{talk}}$ $\color{#b0c8b4}\normalsize{\texttt{more}}$ ${{\color{#c4d1b9}\normalsize{\texttt {໒꒰ྀི´ ˘ ` ꒱ྀིა} }}}$
-<p align ="center"> 
- $\color{#2d525f}\normalsize{\texttt{✮⋆˙ I}}$ $\color{#3b8490}\normalsize{\texttt{do}}$ $\color{#4fa2a1}\normalsize{\texttt{not go}}$ $\color{#8eb8aa}\normalsize{\texttt{well}}$ $\color{#8eb8aa}\normalsize{\texttt{talking to}}$ ${{\color{#c4d1b9}\normalsize{\texttt {New people.. BEAR W ME} }}}$
- </p>
-<p align ="center"> 
- ${{\color{#367a97}− − − − − − − − ˚ ₊ ‧ ꒰ ა ☆ ໒ ꒱ ‧ ₊ ˚ ˗ − − − − − −}}$
- 
-<p align ="center"> 
- ${{\color{#2d525f} *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ }}$
+ <p align ="center"> 
+<img width="266" height="338" alt="image" src="https://github.com/user-attachments/assets/8d07183f-aaea-45d0-92fd-9b1fa9339cc8" />
 
 
 
