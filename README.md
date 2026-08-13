@@ -5,7 +5,7 @@
 
 <p align ="center"> 
  ${{\color{#2d525f} ♡ }}$ 
-   <a href="https://github.com/Satoru-Gojos/">@Satoru-Gojos</a>  ${{\color{#2d525f} ♡ }}$ 
+   <a href="https://github.com/ssixeyes">@ssixeyes</a>  ${{\color{#2d525f} ♡ }}$ 
    <a href="https://github.com/loveruffle/">@loveruffle</a> ${{\color{#2d525f} ♡ }}$ 
    <a href="https://github.com/HIGUGETO/">@HIGUGETO</a> ${{\color{#2d525f} ♡ }}$ 
  
