@@ -23,8 +23,7 @@
   
 
  <p align ="center"> 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=4C626DBB&width=393&height=30&lines=%E1%B4%85%E1%B4%8F%C9%B4'%E1%B4%9B+%CA%99%E1%B4%8F%E1%B4%9B%CA%9C%E1%B4%87%CA%80+%C9%AA%C9%B4%E1%B4%9B%E1%B4%87%CA%80%E1%B4%80%E1%B4%84%E1%B4%9B%C9%AA%C9%B4%C9%A2;+%C9%AA%EA%9C%B0+%CA%8F%E1%B4%8F%E1%B4%9C%CA%80+%E1%B4%80+%CA%80%E1%B4%87%E1%B4%80%CA%9F+%EA%9C%B0%E1%B4%9C%E1%B4%84%E1%B4%8B%E1%B4%87%E1%B4%85+%E1%B4%9C%E1%B4%98+%E1%B4%98%E1%B4%87%CA%80%EA%9C%B1%E1%B4%8F%C9%B4" alt="Typing SVG" /></a>
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=4C626D&width=264&height=28&lines=%F0%9D%99%B5%F0%9D%9A%8E%F0%9D%9A%8E%F0%9D%9A%95+%F0%9D%9A%8F%F0%9D%9A%9B%F0%9D%9A%8E%F0%9D%9A%8E+%F0%9D%9A%9D%F0%9D%9A%98+%F0%9D%9A%92%F0%9D%9A%97%F0%9D%9A%9D%F0%9D%9A%8E%F0%9D%9A%9B%F0%9D%9A%8A%F0%9D%9A%8C%F0%9D%9A%9D;%CA%99%E1%B4%9C%E1%B4%9B+%E1%B4%85%E1%B4%8F%C9%B4%E1%B4%9B+%C9%AA%EA%9C%B0+%CA%8F%E1%B4%8F%E1%B4%9C%CA%80+;%E1%B4%80+%CA%9F%C9%AA%E1%B4%9B%E1%B4%9B%CA%9F%E1%B4%87+%EA%9C%B1%CA%9C%C9%AA%E1%B4%9B+%CA%9C%E1%B4%87%E1%B4%80%E1%B4%85" alt="Typing SVG" /></a>
   
 <p align ="center">  
  $\color{#2d525f}\normalsize{\texttt{▶︎•၊၊}}$ $\color{#3b8490}\normalsize{\texttt{||၊|။|}}$ $\color{#4fa2a1}\normalsize{\texttt{|||။}}$ $\color{#8eb8aa}\normalsize{\texttt{၊|။•}}$ $\color{#b0c8b4}\normalsize{\texttt{♫⋆｡}}$ ${{\color{#c4d1b9}\normalsize{\texttt {♪ ₊˚♬ ﾟ.} }}}$
