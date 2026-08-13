@@ -1,4 +1,5 @@
  <p align="center">
+<img width="1036" height="218" alt="image" src="https://github.com/user-attachments/assets/59ddc4de-9242-4536-916e-d34081e26a7e" />
 
  <p align ="center"> 
  ${{\color{#367a97} My fav chuds }}$
@@ -28,5 +29,6 @@
 <p align ="center">  
  $\color{#2d525f}\normalsize{\texttt{▶︎•၊၊}}$ $\color{#3b8490}\normalsize{\texttt{||၊|။|}}$ $\color{#4fa2a1}\normalsize{\texttt{|||။}}$ $\color{#8eb8aa}\normalsize{\texttt{၊|။•}}$ $\color{#b0c8b4}\normalsize{\texttt{♫⋆｡}}$ ${{\color{#c4d1b9}\normalsize{\texttt {♪ ₊˚♬ ﾟ.} }}}$
 
+ <p align ="center"> 
+ <img width="1036" height="218" alt="image" src="https://github.com/user-attachments/assets/c032b72d-9d9a-4d1c-a323-1a324988009c" />
 
- 
