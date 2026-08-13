@@ -8,7 +8,9 @@
    <a href="https://github.com/ssixeyes">@ssixeyes</a>  ${{\color{#2d525f} ♡ }}$ 
    <a href="https://github.com/loveruffle/">@loveruffle</a> ${{\color{#2d525f} ♡ }}$ 
    <a href="https://github.com/HIGUGETO/">@HIGUGETO</a> ${{\color{#2d525f} ♡ }}$ 
- 
+
+ <p align ="center"> 
+ ${{\color{#2d525f}Tofu}}$  ${{\color{#2d525f} Loves}}$  ${{\color{#2d525f} You :3}}$ 
 
 &nbsp; <p align="center"> [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/e3ea1ff9-2c73-4713-9117-21ab22907dd8" />](https://rentry.co/Sugurgetos/) [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/717afe4f-07a3-468d-a91c-37d21f65e79a" />](https://suguru-geto.atabook.org/) [<img width="123" height="60" alt="image" src="https://github.com/user-attachments/assets/bc740f70-844e-4909-8911-f9b4aaecc653" />](https://guns.lol/2ugurugeto)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/83ff229b-efa8-4ca4-8583-dabf2cd295f4" />](https://sugutofu.straw.page/)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/f8afb8e9-a613-4752-9822-0d9d6e6146d0" />](https://x.com/Shrimp_Tofu)
 
@@ -26,11 +28,5 @@
 <p align ="center">  
  $\color{#2d525f}\normalsize{\texttt{▶︎•၊၊}}$ $\color{#3b8490}\normalsize{\texttt{||၊|။|}}$ $\color{#4fa2a1}\normalsize{\texttt{|||။}}$ $\color{#8eb8aa}\normalsize{\texttt{၊|။•}}$ $\color{#b0c8b4}\normalsize{\texttt{♫⋆｡}}$ ${{\color{#c4d1b9}\normalsize{\texttt {♪ ₊˚♬ ﾟ.} }}}$
 
-<p align ="center"> 
- ${{\color{#2d525f} Other accounts }}$ 
-<p align ="center"> 
- ${{\color{#2d525f} ♡ }}$ 
-   <a href="https://github.com/Sukuna-Ryomens/">@Sukuna-Ryomens </a>  ${{\color{#2d525f} ♡ }}$ 
-   <a href="https://github.com/SushiTofu/">@SushiTofu</a> ${{\color{#2d525f} ♡ }}$ 
-   <a href="https://github.com/DONATELLO-HAMATO /">@DONATELLO-HAMATO  </a> ${{\color{#2d525f} ♡ }}$ 
+
  
