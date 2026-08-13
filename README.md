@@ -5,6 +5,9 @@
  ${{\color{#367a97} My fav chuds }}$
 
 <p align ="center"> 
+<img width="269" height="159" alt="image" src="https://github.com/user-attachments/assets/73fd71b4-1eee-4a1e-91b7-49130f43018a" />
+
+<p align ="center"> 
  ${{\color{#2d525f} ♡ }}$ 
    <a href="https://github.com/ssixeyes">@ssixeyes</a>  ${{\color{#2d525f} ♡ }}$ 
    <a href="https://github.com/loveruffle/">@loveruffle</a> ${{\color{#2d525f} ♡ }}$ 
