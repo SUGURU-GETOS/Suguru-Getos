@@ -36,9 +36,13 @@
 </table>
 <img width="1082" height="107" alt="image" src="https://github.com/user-attachments/assets/6bfa4daf-3d52-4651-8482-986e94347227" />
   <p float="center">
+   
 
-
-
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=316x3ee2a73zalu7xvgh2gde5jxa&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316x3ee2a73zalu7xvgh2gde5jxa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
+  </a>
+</p>
  
  <p align ="center"> 
  ${{\color{#2d525f}Tofu}}$  ${{\color{#2d525f} Loves}}$  ${{\color{#2d525f} You :3}}$ 
