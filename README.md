@@ -25,7 +25,7 @@
 </table>
 <br>
 <p>
-<img width="86" height="76" alt="image" src="https://github.com/user-attachments/assets/a93354a4-d477-428c-b668-a57a96bdd01a" />
+<img width="144" height="150" alt="pony-town-1# I eat rei&#39;s for dinner-dance-1-b-3x" src="https://github.com/user-attachments/assets/2ce75f5f-725b-47a7-8bdf-4edc31e27c84" />
 </p>
 <br>
 <table border="1" cellpadding="8" cellspacing="0" width="80%">
@@ -44,9 +44,6 @@
  ${{\color{#2d525f}Tofu}}$  ${{\color{#2d525f} Loves}}$  ${{\color{#2d525f} You :3}}$ 
 
 &nbsp; <p align="center">  ${{\color{#367a97}☾ ﾟ｡⋆}}$  [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/e3ea1ff9-2c73-4713-9117-21ab22907dd8" />](https://rentry.co/Sugurgetos/) [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/717afe4f-07a3-468d-a91c-37d21f65e79a" />](https://suguru-geto.atabook.org/) [<img width="123" height="60" alt="image" src="https://github.com/user-attachments/assets/bc740f70-844e-4909-8911-f9b4aaecc653" />](https://guns.lol/2ugurugeto)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/83ff229b-efa8-4ca4-8583-dabf2cd295f4" />](https://sugutofu.straw.page/)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/f8afb8e9-a613-4752-9822-0d9d6e6146d0" />](https://x.com/Shrimp_Tofu)  ${{\color{#367a97}☾ ﾟ｡⋆}}$ 
-
-
-
 
   
 
