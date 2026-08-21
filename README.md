@@ -1,4 +1,3 @@
- <p align="center">
 <img width="1036" height="218" alt="image" src="https://github.com/user-attachments/assets/59ddc4de-9242-4536-916e-d34081e26a7e" />
 
  <p align ="center"> 
@@ -18,10 +17,34 @@
 
 &nbsp; <p align="center">  ${{\color{#367a97}☾ ﾟ｡⋆}}$  [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/e3ea1ff9-2c73-4713-9117-21ab22907dd8" />](https://rentry.co/Sugurgetos/) [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/717afe4f-07a3-468d-a91c-37d21f65e79a" />](https://suguru-geto.atabook.org/) [<img width="123" height="60" alt="image" src="https://github.com/user-attachments/assets/bc740f70-844e-4909-8911-f9b4aaecc653" />](https://guns.lol/2ugurugeto)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/83ff229b-efa8-4ca4-8583-dabf2cd295f4" />](https://sugutofu.straw.page/)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/f8afb8e9-a613-4752-9822-0d9d6e6146d0" />](https://x.com/Shrimp_Tofu)  ${{\color{#367a97}☾ ﾟ｡⋆}}$ 
 
+<img width="1082" height="107" alt="image" src="https://github.com/user-attachments/assets/f3062d82-5914-483e-8fa4-963e0b7f2c75" />
+ <table border="0">
+<tr>
+<td align="center" valign="middle" width="60%">
+<img width="578" height="351" alt="image" src="https://github.com/user-attachments/assets/9db53751-30e6-4201-b2cb-33b49adbcbd0" />
+</td>
+<td align="center" valign="middle" width="40%">
+<br><br>
+<table border="1" cellpadding="8" cellspacing="0" width="80%">
+<tr><td align="center"> 15yr. Eats mochi for living</td></tr>
+</table>
+<br>
+<p>
+<img width="86" height="76" alt="image" src="https://github.com/user-attachments/assets/a93354a4-d477-428c-b668-a57a96bdd01a" />
+</p>
+<br>
+<table border="1" cellpadding="8" cellspacing="0" width="80%">
+<tr><td align="center"> Your my Suguru to my Satoru.</td></tr>
+</table>
+</td>
+</tr>
+</table>
+<img width="1082" height="107" alt="image" src="https://github.com/user-attachments/assets/6bfa4daf-3d52-4651-8482-986e94347227" />
+  <p float="center">
 
  <p align ="center"> 
   
-<img width="929" height="458" alt="image" src="https://github.com/user-attachments/assets/5b2c805b-3960-4e4c-aab3-6e8ac5ee8f7f" />
+
 
   
 
