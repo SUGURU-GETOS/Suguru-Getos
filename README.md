@@ -21,7 +21,7 @@
  <table border="0">
 <tr>
 <td align="center" valign="middle" width="60%">
-<img width="578" height="351" alt="image" src="https://github.com/user-attachments/assets/9db53751-30e6-4201-b2cb-33b49adbcbd0" />
+<img width="743" height="414" alt="image" src="https://github.com/user-attachments/assets/9dc6e52b-ba55-4d11-b73d-b919a167b3be" />
 </td>
 <td align="center" valign="middle" width="40%">
 <br><br>
