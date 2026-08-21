@@ -2,20 +2,15 @@
 
  <p align ="center"> 
  ${{\color{#367a97} My fav chuds }}$
-
-<p align ="center"> 
-<img width="269" height="159" alt="image" src="https://github.com/user-attachments/assets/73fd71b4-1eee-4a1e-91b7-49130f43018a" />
-
 <p align ="center"> 
  ${{\color{#2d525f} ♡ }}$ 
    <a href="https://github.com/ssixeyes">@ssixeyes</a>  ${{\color{#2d525f} ♡ }}$ 
    <a href="https://github.com/HIGUGETO/">@HIGUGETO</a> ${{\color{#2d525f} ♡ }}$ 
    <a href="https://github.com/punrei">@punrei</a> ${{\color{#2d525f} ♡ }}$ 
  
- <p align ="center"> 
- ${{\color{#2d525f}Tofu}}$  ${{\color{#2d525f} Loves}}$  ${{\color{#2d525f} You :3}}$ 
+<p align ="center"> 
+<img width="269" height="159" alt="image" src="https://github.com/user-attachments/assets/73fd71b4-1eee-4a1e-91b7-49130f43018a" />
 
-&nbsp; <p align="center">  ${{\color{#367a97}☾ ﾟ｡⋆}}$  [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/e3ea1ff9-2c73-4713-9117-21ab22907dd8" />](https://rentry.co/Sugurgetos/) [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/717afe4f-07a3-468d-a91c-37d21f65e79a" />](https://suguru-geto.atabook.org/) [<img width="123" height="60" alt="image" src="https://github.com/user-attachments/assets/bc740f70-844e-4909-8911-f9b4aaecc653" />](https://guns.lol/2ugurugeto)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/83ff229b-efa8-4ca4-8583-dabf2cd295f4" />](https://sugutofu.straw.page/)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/f8afb8e9-a613-4752-9822-0d9d6e6146d0" />](https://x.com/Shrimp_Tofu)  ${{\color{#367a97}☾ ﾟ｡⋆}}$ 
 
 <img width="1082" height="107" alt="image" src="https://github.com/user-attachments/assets/f3062d82-5914-483e-8fa4-963e0b7f2c75" />
  <table border="0">
@@ -42,8 +37,15 @@
 <img width="1082" height="107" alt="image" src="https://github.com/user-attachments/assets/6bfa4daf-3d52-4651-8482-986e94347227" />
   <p float="center">
 
+
+
+ 
  <p align ="center"> 
-  
+ ${{\color{#2d525f}Tofu}}$  ${{\color{#2d525f} Loves}}$  ${{\color{#2d525f} You :3}}$ 
+
+&nbsp; <p align="center">  ${{\color{#367a97}☾ ﾟ｡⋆}}$  [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/e3ea1ff9-2c73-4713-9117-21ab22907dd8" />](https://rentry.co/Sugurgetos/) [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/717afe4f-07a3-468d-a91c-37d21f65e79a" />](https://suguru-geto.atabook.org/) [<img width="123" height="60" alt="image" src="https://github.com/user-attachments/assets/bc740f70-844e-4909-8911-f9b4aaecc653" />](https://guns.lol/2ugurugeto)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/83ff229b-efa8-4ca4-8583-dabf2cd295f4" />](https://sugutofu.straw.page/)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/f8afb8e9-a613-4752-9822-0d9d6e6146d0" />](https://x.com/Shrimp_Tofu)  ${{\color{#367a97}☾ ﾟ｡⋆}}$ 
+
+
 
 
   
