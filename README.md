@@ -1,16 +1,6 @@
 <img width="1036" height="218" alt="image" src="https://github.com/user-attachments/assets/59ddc4de-9242-4536-916e-d34081e26a7e" />
 
- <p align ="center"> 
- ${{\color{#367a97} My fav chuds }}$
-<p align ="center"> 
- ${{\color{#2d525f} ♡ }}$ 
-   <a href="https://github.com/ssixeyes">@ssixeyes</a>  ${{\color{#2d525f} ♡ }}$ 
-   <a href="https://github.com/HIGUGETO/">@HIGUGETO</a> ${{\color{#2d525f} ♡ }}$ 
-   <a href="https://github.com/punrei">@punrei</a> ${{\color{#2d525f} ♡ }}$ 
  
-<p align ="center"> 
-<img width="269" height="159" alt="image" src="https://github.com/user-attachments/assets/73fd71b4-1eee-4a1e-91b7-49130f43018a" />
-
 
 <img width="1082" height="107" alt="image" src="https://github.com/user-attachments/assets/f3062d82-5914-483e-8fa4-963e0b7f2c75" />
  <table border="0">
