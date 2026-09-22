@@ -2,6 +2,7 @@
 
 
  <div align="center">
+  <summary>$$\color{#558d9d}\text{my\ art}$$</summary>
 <img width="329" height="171" alt="image" src="https://github.com/user-attachments/assets/5a015d29-8a2b-48af-9c22-010bca4c13cf" />
 
  <div align="center">
