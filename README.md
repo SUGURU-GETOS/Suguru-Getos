@@ -64,7 +64,8 @@
 
 <div align="center">  
   <img width="585" height="417" alt="image" src="https://github.com/user-attachments/assets/ff86d66c-5d4f-4ce6-8da9-af1d68688789" />
-
+ 
+&nbsp; <p align="center"> [<img width="317" height="248" alt="image" src="https://github.com/user-attachments/assets/ed34252e-ce93-4ed4-9448-a96638f34ae5" />](https://suguru-geto.atabook.org/) [<img width="258" height="219" alt="image" src="https://github.com/user-attachments/assets/7bc36a0e-4a6e-413f-8e48-dc8ec8757811" />](https://setup2.straw.page/)  
 
 <p align="center">   ${{\color{#558d9d} ♡ *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ }}$ 
  
