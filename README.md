@@ -1,53 +1,63 @@
-<img width="1036" height="218" alt="image" src="https://github.com/user-attachments/assets/59ddc4de-9242-4536-916e-d34081e26a7e" />
+<p align="center">   ${{\color{#558d9d} ♡ *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ }}$ 
 
+
+ <div align="center">
+<details>
+  <summary>$$\color{#558d9d}\text{my\ good friendz at jjk area}$$</summary>
+  <br>
  <p align ="center"> 
- ${{\color{#2d525f}Tofu}}$  ${{\color{#2d525f} Loves}}$  ${{\color{#2d525f} You :3}}$ 
-
-&nbsp; <p align="center">  ${{\color{#367a97}☾ ﾟ｡⋆}}$  [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/e3ea1ff9-2c73-4713-9117-21ab22907dd8" />](https://rentry.co/Sugurgetos/) [<img width="124" height="60" alt="image" src="https://github.com/user-attachments/assets/717afe4f-07a3-468d-a91c-37d21f65e79a" />](https://suguru-geto.atabook.org/) [<img width="123" height="60" alt="image" src="https://github.com/user-attachments/assets/bc740f70-844e-4909-8911-f9b4aaecc653" />](https://guns.lol/2ugurugeto)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/83ff229b-efa8-4ca4-8583-dabf2cd295f4" />](https://setup2.straw.page/)  [<img width="125" height="60" alt="image" src="https://github.com/user-attachments/assets/f8afb8e9-a613-4752-9822-0d9d6e6146d0" />](https://x.com/Shrimp_Tofu)  ${{\color{#367a97}☾ ﾟ｡⋆}}$ 
-
-  
-
-<img width="1082" height="107" alt="image" src="https://github.com/user-attachments/assets/f3062d82-5914-483e-8fa4-963e0b7f2c75" />
- <table border="0">
-<tr>
-<td align="center" valign="middle" width="60%">
-<img width="743" height="414" alt="image" src="https://github.com/user-attachments/assets/9dc6e52b-ba55-4d11-b73d-b919a167b3be" />
-</td>
-<td align="center" valign="middle" width="40%">
-<br><br>
-<table border="1" cellpadding="8" cellspacing="0" width="80%">
-<tr><td align="center"> 15yr. Eats mochi for living</td></tr>
-</table>
-<br>
-<p>
-<img width="144" height="150" alt="pony-town-1# I eat rei&#39;s for dinner-dance-1-b-3x" src="https://github.com/user-attachments/assets/2ce75f5f-725b-47a7-8bdf-4edc31e27c84" />
+ ${{\color{#678198} - }}$ 
+   <a href="https://github.com/suncolored">suncolored </a>  ${{\color{#678198} - }}$  <a href="https://github.com/HIGUGETO"> HIGUGETO</a> ${{\color{#678198} - more soon?}}$ 
 </p>
-<br>
-<table border="1" cellpadding="8" cellspacing="0" width="80%">
-<tr><td align="center"> Your my Suguru to my Satoru.</td></tr>
-</table>
-</td>
-</tr>
-</table>
-<img width="1082" height="107" alt="image" src="https://github.com/user-attachments/assets/6bfa4daf-3d52-4651-8482-986e94347227" />
-  <p float="center">
-   
+    </th>
+  </tr>
+  </table>
+</details>
+</div>
 
+ 
+ <div align="center">
+<details>
+  <summary>$$\color{#558d9d}\text{𝘀𝗺𝗮𝗹𝗹\ 𝗯𝘆𝗶}$$</summary>
+  <br>
+ 
+  <div align="center">
+  <table>
+  <tr>
+    <th>
+    <img width="540" height="281" alt="image" src="https://github.com/user-attachments/assets/07f71f78-0186-45cc-86bb-42956664c4fd" />
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=316x3ee2a73zalu7xvgh2gde5jxa&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316x3ee2a73zalu7xvgh2gde5jxa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
   </a>
 </p>
- 
- 
+    </th>
+  </tr>
+  </table>
+</details>
+</div>
 
- <p align ="center"> 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&pause=1000&color=4C626D&width=264&height=28&lines=%F0%9D%99%B5%F0%9D%9A%8E%F0%9D%9A%8E%F0%9D%9A%95+%F0%9D%9A%8F%F0%9D%9A%9B%F0%9D%9A%8E%F0%9D%9A%8E+%F0%9D%9A%9D%F0%9D%9A%98+%F0%9D%9A%92%F0%9D%9A%97%F0%9D%9A%9D%F0%9D%9A%8E%F0%9D%9A%9B%F0%9D%9A%8A%F0%9D%9A%8C%F0%9D%9A%9D;%CA%99%E1%B4%9C%E1%B4%9B+%E1%B4%85%E1%B4%8F%C9%B4%E1%B4%9B+%C9%AA%EA%9C%B0+%CA%8F%E1%B4%8F%E1%B4%9C%CA%80+;%E1%B4%80+%CA%9F%C9%AA%E1%B4%9B%E1%B4%9B%CA%9F%E1%B4%87+%EA%9C%B1%CA%9C%C9%AA%E1%B4%9B+%CA%9C%E1%B4%87%E1%B4%80%E1%B4%85" alt="Typing SVG" /></a>
+
+ <div align="center">  
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&size=23&pause=1000&color=4988A0&repeat=false&width=435&lines=%F0%9D%92%B2%F0%9D%92%BD%F0%9D%91%92%F0%9D%93%87%F0%9D%91%92'%F0%9D%92%B9+%F0%9D%92%B6%F0%9D%93%81%F0%9D%93%81+%F0%9D%93%89%F0%9D%92%BD%F0%9D%91%92+%F0%9D%93%89%F0%9D%92%BE%F0%9D%93%82%F0%9D%91%92+%F0%9D%91%94%F0%9D%91%9C%3F+;%F0%9D%90%BC%F0%9D%93%89'%F0%9D%93%88+%F0%9D%93%88%F0%9D%93%89%F0%9D%92%B6%F0%9D%93%87%F0%9D%93%89%F0%9D%92%BE%F0%9D%93%83%F0%9D%91%94+%F0%9D%93%89%F0%9D%91%9C+%F0%9D%92%BB%F0%9D%93%81%F0%9D%93%8E..;%F0%9D%92%AE%F0%9D%91%92%F0%9D%91%92+%F0%9D%92%BD%F0%9D%91%9C%F0%9D%93%8C+%F0%9D%93%89%F0%9D%92%BD%F0%9D%91%92+%F0%9D%92%BD%F0%9D%92%B6%F0%9D%93%83%F0%9D%92%B9%F0%9D%93%88+%F0%9D%91%94%F0%9D%91%9C;%F0%9D%92%B2%F0%9D%92%B6%F0%9D%93%8B%F0%9D%92%BE%F0%9D%93%83%F0%9D%91%94+%F0%9D%91%94%F0%9D%91%9C%F0%9D%91%9C%F0%9D%92%B9%F0%9D%92%B7%F0%9D%93%8E%F0%9D%91%92~" alt="Typing SVG" /></a>
+ <div align="center">  
+<img width="910" height="109" alt="image" src="https://github.com/user-attachments/assets/0c3c8233-d147-4d33-8955-8c38d15a7b7a" />
   
-<p align ="center">  
- $\color{#2d525f}\normalsize{\texttt{▶︎•၊၊}}$ $\color{#3b8490}\normalsize{\texttt{||၊|။|}}$ $\color{#4fa2a1}\normalsize{\texttt{|||။}}$ $\color{#8eb8aa}\normalsize{\texttt{၊|။•}}$ $\color{#b0c8b4}\normalsize{\texttt{♫⋆｡}}$ ${{\color{#c4d1b9}\normalsize{\texttt {♪ ₊˚♬ ﾟ.} }}}$
+&nbsp; <p align="center"> [<img width="178" height="149" alt="image" src="https://github.com/user-attachments/assets/1e1e84e9-f5f0-488a-ad17-640630498605" />](https://suguru-geto.atabook.org/) [<img width="193" height="154" alt="image" src="https://github.com/user-attachments/assets/56932ffe-fb59-4c0e-b2a9-4648be865f11" />
+](https://setup2.straw.page/)  
 
- <p align ="center"> 
- <img width="1036" height="218" alt="image" src="https://github.com/user-attachments/assets/c032b72d-9d9a-4d1c-a323-1a324988009c" />
+<div align="center">  
+  <img width="585" height="417" alt="image" src="https://github.com/user-attachments/assets/ff86d66c-5d4f-4ce6-8da9-af1d68688789" />
+
+
+<p align="center">   ${{\color{#558d9d} ♡ *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ }}$ 
+ 
+ <div align="center">  
+<img width="229" height="495" alt="image" src="https://github.com/user-attachments/assets/b2b84863-8669-4c1b-8c6b-911bc90d2d98" /> <img width="174" height="520" alt="image" src="https://github.com/user-attachments/assets/261d6778-ec80-46dc-b836-a1d344593992" />
+
+
+
+  <p align="center">   ${{\color{#558d9d} ♡ *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ }}$ 
+   
 
 
