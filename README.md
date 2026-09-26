@@ -63,13 +63,15 @@
 &nbsp; <p align="center"> [<img width="317" height="248" alt="image" src="https://github.com/user-attachments/assets/ed34252e-ce93-4ed4-9448-a96638f34ae5" />](https://suguru-geto.atabook.org/) [<img width="281" height="248" alt="image" src="https://github.com/user-attachments/assets/64ee46b3-2e8f-4c2e-ad62-c3eddd739b31" />](https://setup2.straw.page/)  
 
 <div align="center">  
-  <img width="585" height="417" alt="image" src="https://github.com/user-attachments/assets/ff86d66c-5d4f-4ce6-8da9-af1d68688789" />
+  <img width="585" height="417" alt="image" src="https://github.com/user-attachments/assets/ff86d66c-5d4f-4ce6-8da9-af1d68688789" /> 
  
 
 <p align="center">   ${{\color{#558d9d} ♡ *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ }}$ 
 
  <p align="center"> 
-<img width="229" height="495" alt="image" src="https://github.com/user-attachments/assets/b2b84863-8669-4c1b-8c6b-911bc90d2d98" /> <img width="174" height="520" alt="image" src="https://github.com/user-attachments/assets/261d6778-ec80-46dc-b836-a1d344593992" />
+<img width="229" height="495" alt="image" src="https://github.com/user-attachments/assets/b2b84863-8669-4c1b-8c6b-911bc90d2d98" /> <img width="174" height="520" alt="image" src="https://github.com/user-attachments/assets/261d6778-ec80-46dc-b836-a1d344593992" /> <img width="267" height="518" alt="image" src="https://github.com/user-attachments/assets/787d413d-fea6-43af-a1b6-d05425864c87" />
+
+
 
 
 
