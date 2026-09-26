@@ -11,7 +11,7 @@
   <br>
  <p align ="center"> 
  ${{\color{#678198} - }}$ 
-   <a href="https://github.com/suncolored">suncolored </a>  ${{\color{#678198} - }}$  <a href="https://github.com/HIGUGETO"> HIGUGETO</a> ${{\color{#678198} - }}$  <a href=https://github.com/Sukuna-Remix> chip </a> ${{\color{#678198} - more soon?}}$ 
+   <a href="https://github.com/suncolored">suncolored </a>  ${{\color{#678198} - }}$  <a href="https://github.com/HIGUGETO"> HIGUGETO</a> ${{\color{#678198} - }}$  <a href=https://github.com/Sukuna-Remix> chip </a> ${{\color{#678198} - }}$ <a href=https://github.com/N1L0U> Nilou </a>  ${{\color{#678198} - more soon?}}$ 
 </p>
     </th>
   </tr>
